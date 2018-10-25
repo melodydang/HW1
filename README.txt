@@ -1,2 +1,0 @@
-Cuifan Dang.
-Chicago Cubs.
